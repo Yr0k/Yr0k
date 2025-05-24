@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yr0k
 - 👀 I’m interested in anime/manga
-- 🌱 I’m currently learning basics
+- 🌱 I’m currently learning the basics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
