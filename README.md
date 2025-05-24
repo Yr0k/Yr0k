@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yr0k
+- 👋 Hi, I’m @yrok
 - 👀 I’m interested in anime/manga
 - 🌱 I’m currently learning the basics
 - 💞️ I’m looking to collaborate on ...
